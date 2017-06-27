@@ -1,0 +1,3 @@
+Well we made it another week. The test kicked my butt a bit but i was late in pulling out my resource  materials and had the answers for a few of the questions i missed which is frustrating but hey i passed.
+So far this week has been about managing personalities and trying to keep my team on the same page. This can be difficult as some of the team prefers to work independently, so getting cohesion is challenging at times.
+I am happy everyone in my group passed the test. That takes a little of the pressure off and puts us in a position to work with a little less stress. We just need to continue to add new and  interesting content to the project and we should be fine.
